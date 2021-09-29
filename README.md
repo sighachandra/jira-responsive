@@ -1,0 +1,1 @@
+Jra responsive html
